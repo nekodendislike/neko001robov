@@ -2,6 +2,6 @@
 
 「うんこもりもり森鴎外」
 
-雪見さやか･･･ nekolabteam.github.io/yukimisayaka
+home･･･ nekolabteam.github.io/
 
-俺に苦情: discordは 猫電車/nekolabteam #9145
+discord: 猫電/NEKODEN#2407
